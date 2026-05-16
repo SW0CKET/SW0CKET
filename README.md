@@ -1,4 +1,8 @@
-## Hi there 👋
+<div align="center">
+i go by sword, turning 16 in june :D i use any pronouns! masc preferred<br>
+i like to play phighting and draw<br>
+c+h friendly, w2i sometimes
+</div>
 
 <!--
 **swordpIay/swordpIay** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
