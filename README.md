@@ -1,5 +1,5 @@
 <div align="center">
-i go by sword i use any pronouns!<br>
+i go by sword, i use any pronouns!<br>
 turning 16 in june :D<br>
 i like to play phighting and draw<br>
 c+h friendly, w2i sometimes<br>
