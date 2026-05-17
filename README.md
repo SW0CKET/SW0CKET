@@ -1,7 +1,10 @@
 <div align="center">
-i go by sword, turning 16 in june :D i use any pronouns! masc preferred<br>
+i go by sword i use any pronouns!<br>
+turning 16 in june :D<br>
 i like to play phighting and draw<br>
-c+h friendly, w2i sometimes
+c+h friendly, w2i sometimes<br>
+i don't mind ships<br>
+i hide and block freely
 </div>
 
 <!--
