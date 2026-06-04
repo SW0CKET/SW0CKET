@@ -1,9 +1,9 @@
 <div align="center">
 i go by sword, i use any pronouns!<br>
-turning 16 in june :D<br>
+16, unlabeled<br>
 i like to play phighting and draw<br>
 c+h friendly, w2i sometimes<br>
-i don't mind ships<br>
+fandom(s) iwec unless friend<br>
 i hide and block freely
 </div>
 
