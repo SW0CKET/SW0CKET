@@ -1,10 +1,5 @@
 <div align="center">
-i go by sword, i use any pronouns!<br>
-16, unlabeled<br>
-i like to play phighting and draw<br>
-c+h friendly, w2i sometimes<br>
-fandom(s) iwec unless friend<br>
-i hide and block freely
+<a href="https://rentry.co/swordphightr">about me and boundaries</a>
 </div>
 
 <!--
